@@ -8,3 +8,10 @@ cada pagina explica cada cosa del juego blox fruits es un juego que tiene que su
 los plugin que puse son el kubio el classic y otro que no me acuerdo
 
 el hosting es el infinityfree
+
+en un buen hosting lo recomiendo para el siguiente año por que es facil de utilizar y sera mas sencillo y mas eficiente 
+
+mi web esta en castellano
+
+la siguiente paginas que pobre sera de blue lock rivals
+
