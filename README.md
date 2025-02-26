@@ -15,3 +15,4 @@ mi web esta en castellano
 
 la siguiente paginas que pobre sera de blue lock rivals
 
+mas quiero meter un plugin que ponga en tiempo y la hora y el dia y la tempertura
